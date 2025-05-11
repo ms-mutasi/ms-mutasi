@@ -2,7 +2,7 @@
 
 Selamat datang di **Mann Shop**, toko digital bertema anime dan Jejepangan yang menyediakan layanan **cek mutasi rekening secara real-time** — seperti ninja keuangan yang setia memantau pergerakan saldo Anda!
 
-![Mann Shop Banner](https://i.supa.codes/Bg2cod)
+![Mann Shop Banner](https://i.imgur.com/5LfJ9sy.gif)
 
 ---
 
