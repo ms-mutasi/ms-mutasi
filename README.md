@@ -2,7 +2,7 @@
 
 Selamat datang di **Mann Shop**, toko digital bertema anime dan Jejepangan yang menyediakan layanan **cek mutasi rekening secara real-time** — seperti ninja keuangan yang setia memantau pergerakan saldo Anda!
 
-![Mann Shop Banner](https://media.giphy.com/media/IwAZ6dvvvaTtdI8SD5/giphy.gif)
+![Mann Shop Banner](https://tenor.com/view/rikka-takanashi-takanashi-rikka-chunnibyou-demo-koi-ga-shitai-anime-gif-17864924)
 
 ---
 
